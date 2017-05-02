@@ -1,1 +1,1 @@
-Equipe de Jujitsu Tradicional Airon
+Equipe de Ju-jitsu Tradicional Airon
